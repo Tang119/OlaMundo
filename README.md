@@ -1,3 +1,4 @@
+![headshot](Foto_Fermin-Tang_Perfil.jpg)
 # Um pouco sobre mim
 Olá a Todos! Meu nome é Fermin Tang professor universitário na UENF. Este README mostrará algumas poucas informações sobre mim.
 
