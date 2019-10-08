@@ -9,4 +9,4 @@ Eu sou formado na área de Pesquisa Operacional, uma área interdisciplinar que 
 Gosto muito de tecnologia, de jogos de computador, de filmes de ficção científica, suspenses e comedias românticas. Gosto de uma vida tranquila e sobretodo de poder sorrir no final do dia!
 
 ## Meus Filmes Faboritos
-Gosto muito da Trilogia do Senhor dos Aneis, Star Wars, A lista de Schindler, Doutor Jivago, e tantos outros, difícil escolher.
+Gosto muito da Trilogia do Senhor dos Aneis, Star Wars, A lista de Schindler, Doutor Jivago, O Poderoso Chefão e tantos outros, difícil escolher.
